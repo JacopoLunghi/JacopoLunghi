@@ -2,12 +2,12 @@
 
 **Teaching activities** <br>
 Economics Module I (Microeconomics) (Bocconi University) <br>
-Environmental Economic and Policy (University of Milan)
+Environmental Economics and Policy (University of Milan)
 
 **Education**<br>
-2019-2024.  PhD in Economics. Bocconi University, Milan, Italy <br>
-2017-19.    MSc in Applied Economic Analysis. Stockholm School of Economics, Stockholm, Sweden <br>
-2014-17.    BSc in Economics of International Markets. University of Pavia, Italy <br>
+PhD in Economics. Bocconi University, Italy. <br>
+MSc in Applied Economic Analysis. Stockholm School of Economics, Sweden. <br>
+BSc in Economics of International Markets. University of Pavia, Italy. <br>
 
 **Links**<br>
 [Personal website](https://jacopolunghi.github.io/)<br>
